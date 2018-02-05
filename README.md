@@ -3,9 +3,9 @@ FEWD assignment 1
 
 # Introduction
 
-Hi! My name is Aneta. I moved to San Diego almost 2 years ago from an awesome city in Poland - Cracow. Here's a picture of this very old, beautiful city : 
+Hi! My name is Aneta. I moved to San Diego almost 2 years ago from an awesome city in Poland - Cracow. Here's a picture of this very old, beautiful city's Market Square which is the biggest in Europe: 
 
- ![Cracow's Mian Square is the biggest in Europe](https://tripandtravelblog.com/wp-content/uploads/2013/09/Main-Market-Square-in-Krakow-seen-from-St.-Marys-Basilica..jpg)
+ ![Cracow Main Square](https://tripandtravelblog.com/wp-content/uploads/2013/09/Main-Market-Square-in-Krakow-seen-from-St.-Marys-Basilica..jpg)
  
  If you would like to see a short minute video about Cracow, here it is: (https://www.youtube.com/watch?v=ZuDgyCndTJw)
  
