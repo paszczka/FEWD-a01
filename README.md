@@ -19,7 +19,7 @@ Hi! My name is Aneta. I moved to San Diego almost 2 years ago from an awesome ci
  4. I was horse riding for around 10 years (I do not do it anymore) and I had my own horse
  5. I was studying in Sweden for 5 months
  6. I'm 28 and my close friends are my high school friends - 2 of them I know since kindergarden (I was 6 years old) and we've been friends ever since
- 7. I seriously considered being a pet masseuse (yes it's a real job, massage fluffy dogs and getting paid quite good money for it, dream job)
+ 7. I seriously considered being a pet masseuse (yes it's a real job, massage fluffy dogs and getting paid quite good money for it - dream job)
  
  
  
