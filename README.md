@@ -19,7 +19,7 @@ Hi! My name is Aneta. I moved to San Diego almost 2 years ago from an awesome ci
  6. I'm 28 and my close friends are my high school friends - 2 of them I know since kindergarden (I was 6 years old) and we've been friends ever since
  7. I seriously considered being a pet masseuse (yes it's a real job, massage fluffy dogs and getting paid quite good money for it, dream job)
  
- That would be it and if you would like to see a short minute video about my hometown, here it is: (https://www.youtube.com/watch?v=ZuDgyCndTJw)
+ That would be it and if you would like to see a short minute video about my Cracow, here it is: (https://www.youtube.com/watch?v=ZuDgyCndTJw)
  
  
  
